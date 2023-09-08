@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @OwenM-lcwc
-- 👀 I’m interested in ... music,games
+- 👀 I’m interested in ... music,games,movies
